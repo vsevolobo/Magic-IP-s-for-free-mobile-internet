@@ -8,3 +8,7 @@ http://www.youtube.com/watch?v=ofgUMs8egUw
 
 
 Android apps with "IP hunter" for find Magic IP's
+Some of apps of this developer have tools "IP hunter"
+https://play.google.com/store/apps/dev?id=5630210754799544080
+
+or you can download apps from apkpure
