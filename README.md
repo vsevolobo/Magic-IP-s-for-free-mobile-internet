@@ -16,4 +16,5 @@ or you can download apps from apkpure
 https://m.apkpure.com/ru/developer/JRC%20inc
 
 
-Some links about magic ip'sip's
+Some links about magic ip's
+https://www.yandex.ru/search/touch/?text=magic+ip+ip+hunter+phcorner
