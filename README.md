@@ -14,3 +14,6 @@ https://play.google.com/store/apps/dev?id=5630210754799544080
 
 or you can download apps from apkpure
 https://m.apkpure.com/ru/developer/JRC%20inc
+
+
+Some links about magic ip'sip's
