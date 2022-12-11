@@ -5,3 +5,6 @@ http://www.youtube.com/watch?v=CixLsnoJlAc
 
 IP Hunt Tutorial using Http Injector (Hunt Magic IP for free internet)
 http://www.youtube.com/watch?v=ofgUMs8egUw
+
+
+Android apps with "IP hunter" for find Magic IP's
