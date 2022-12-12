@@ -20,17 +20,12 @@ Some links about magic ip's
 https://www.yandex.ru/search/touch/?text=magic+ip+ip+hunter+phcorner
 
 
-
 Вот прочитал вроде как один человек без впн только с магическим айпи обошёл блокировки.
-
 https://phcorner.net/threads/magic-ip-alam-mu-ba.1557049/
-
 Просто переведите текст, чтобы понять о чём речь.
 
 
 
 Here I read it seems like one person without vpn only with a magic IP bypassed the blocking.
-
 https://phcorner.net/threads/magic-ip-alam-mu-ba.1557049/
-
 Just translate the text to understand what it's about.
